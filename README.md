@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @belledelphinesjanitor
-- 👀 I’m interested in the hit-game Among U
+- 👀 I’m interested in men
 - 🌱 I’m currently learning how to swim
 - 💞️ I’m looking to collaborate on some bitches
 - 📫 How to reach me: by letter 
